@@ -1,4 +1,4 @@
-### Hi Muhammad Yousuf ðŸ‘‹
+### Hi Kalim Gull ðŸ‘‹
 
 
 
@@ -10,7 +10,7 @@
 - ðŸ‘¯ Iâ€™m looking to collaborate on Facebook
 - ðŸ¤” Iâ€™m looking for help with Documentary
 - ðŸ’¬ Ask me about Kalim Gull
-- ðŸ“« How to reach me: Facebook - @Masoomalak.
+- ðŸ“« How to reach me: Facebook - @Kalimgull.
 - ðŸ˜„ Pronouns: He/His
 - âš¡ Fun fact: I Spend Almost Most Time To Use Facebook
 
